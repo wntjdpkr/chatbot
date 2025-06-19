@@ -12,4 +12,6 @@ final project
 
 답변에 사용된 니체의 철학은 제한적인 정보량으로 철학적 정확성이 부족함이 있을 수 있습니다. 
 
+https://youtu.be/c4QkmxBZ05g
+
 
